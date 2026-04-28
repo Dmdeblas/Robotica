@@ -1,1 +1,1 @@
-A continucion se anxa el primer examen parcial de la asignatura Robotica de la Facultad de Estudios Superiores Aragon del grupo 2007
+A continuación se anexa el primer examen parcial de la asignatura Robótica de la Facultad de Estudios Superiores Aragón del grupo 2007
